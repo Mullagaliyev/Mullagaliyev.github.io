@@ -1,2 +1,0 @@
-# Mullagaliyev.github.io
-Sites
